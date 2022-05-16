@@ -1,11 +1,10 @@
-Danny Conrad
-Full Stack Developer | Programmer | 3D Artist
-Find me on:
-Linkedin www.linkedin.com/in/daniel-conrad/05803b57
-Instagram http://instagram.com/northernchimpcanada
-Twitter https://twitter.com/chimp_northern
-Check out my games on:
-647-271 2266 danielrconrad@gmail.com
+Danny Conrad <br>
+Full Stack Developer | Programmer | 3D Artist <br>
+Find me on:<br>
+Linkedin www.linkedin.com/in/daniel-conrad/05803b57<br>
+Instagram http://instagram.com/northernchimpcanada<br>
+Twitter https://twitter.com/chimp_northern<br>
+647-271 2266 danielrconrad@gmail.com<br>
 
 
 <!---
