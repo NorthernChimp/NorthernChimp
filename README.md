@@ -4,6 +4,7 @@ Find me on:<br>
 Linkedin www.linkedin.com/in/daniel-conrad/05803b57<br>
 Instagram http://instagram.com/northernchimpcanada<br>
 Twitter https://twitter.com/chimp_northern<br>
+Youtube https://www.youtube.com/channel/UCk6L5uZlI_lObDCwfHAaWtw<br>
 647-271 2266 danielrconrad@gmail.com<br>
 
 
