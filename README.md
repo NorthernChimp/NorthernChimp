@@ -1,5 +1,5 @@
 Danny Conrad <br>
-Full Stack Developer | Programmer | 3D Artist <br>
+Mobile Developer | Programmer | Multifaceted Asset Artist <br>
 Find me on:<br>
 Linkedin www.linkedin.com/in/daniel-conrad/05803b57<br>
 Instagram http://instagram.com/northernchimpcanada<br>
