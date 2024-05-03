@@ -1,6 +1,7 @@
 Danny Conrad <br>
 Mobile Developer | Programmer | Multifaceted Asset Artist <br>
 Find me on:<br>
+LinkedIn https://www.linkedin.com/in/daniel-conrad-05803b57/
 Instagram http://instagram.com/northernchimpcanada<br>
 Twitter https://twitter.com/chimp_northern<br>
 Youtube https://www.youtube.com/channel/UCk6L5uZlI_lObDCwfHAaWtw<br>
